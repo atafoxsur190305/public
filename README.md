@@ -1,1 +1,1 @@
-The 20th century witnessed unprecedented advancements in road infrastructure, with the widespread adoption of asphalt and concrete pavements, providing smoother and more durable surfaces for roads.
+Highwaymen, or robbers who preyed on travelers, were a common threat on 18th-century roads, particularly in remote or isolated areas where law enforcement was scarce.
