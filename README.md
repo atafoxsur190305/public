@@ -1,1 +1,1 @@
-The development of turnpikes, or toll roads, proliferated in the 19th century, with private companies or local governments collecting fees from travelers to fund road construction and maintenance.
+The growth of trade and commerce in the 18th century increased demand for better roads, prompting governments to invest in road infrastructure as a means of facilitating economic growth and regional integration.
