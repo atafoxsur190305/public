@@ -1,1 +1,1 @@
-The growth of trade and commerce in the 18th century increased demand for better roads, prompting governments to invest in road infrastructure as a means of facilitating economic growth and regional integration.
+The 19th century saw the introduction of modern road-building machinery and equipment, including steam rollers, road graders, and stone crushers, which improved efficiency and quality in road construction projects.
