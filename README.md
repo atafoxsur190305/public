@@ -1,1 +1,1 @@
-The 19th century saw the introduction of modern road-building machinery and equipment, including steam rollers, road graders, and stone crushers, which improved efficiency and quality in road construction projects.
+The development of turnpikes, or toll roads, proliferated in the 19th century, with private companies or local governments collecting fees from travelers to fund road construction and maintenance.
