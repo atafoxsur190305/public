@@ -1,1 +1,1 @@
-The construction of the Golden Gate Bridge in San Francisco in 1937 marked a milestone in bridge engineering, featuring a suspension design that allowed for the efficient and safe passage of vehicles over long spans.
+The rise of tourism in the 19th century, fueled by improvements in transportation and leisure time, created demand for scenic and well-maintained roads in rural and coastal areas.
