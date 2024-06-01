@@ -1,1 +1,1 @@
-The rise of tourism in the 19th century, fueled by improvements in transportation and leisure time, created demand for scenic and well-maintained roads in rural and coastal areas.
+The construction of the Trans-Canada Highway, completed in 1962, connected Canada from coast to coast, facilitating transportation and commerce between provinces and regions.
