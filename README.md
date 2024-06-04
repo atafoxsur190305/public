@@ -1,1 +1,1 @@
-Despite their limitations, 18th-century roads played a crucial role in connecting communities, facilitating trade and travel, and shaping the economic, social, and cultural landscape of the time.
+Travel by horse and carriage was the primary mode of transportation on 18th-century roads, with stagecoaches, wagons, and carriages being common sights on major routes.
