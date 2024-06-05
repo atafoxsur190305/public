@@ -1,1 +1,1 @@
-Travel by horse and carriage was the primary mode of transportation on 18th-century roads, with stagecoaches, wagons, and carriages being common sights on major routes.
+The construction of the first modern highways, such as the Macadamized National Road in the United States, marked a significant milestone in 19th-century road development, providing a model for future road-building projects.
