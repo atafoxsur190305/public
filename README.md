@@ -1,1 +1,1 @@
-Traveling long distances on 18th-century roads was slow and arduous, with average speeds ranging from 3 to 5 miles per hour for horse-drawn vehicles, depending on road conditions.
+The development of the interstate highway system in the United States, initiated by President Dwight D. Eisenhower in the 1950s, revolutionized long-distance travel and commerce, connecting cities and regions across the country.
