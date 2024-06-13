@@ -1,1 +1,1 @@
-Traveling long distances on 18th-century roads was slow and arduous, with average speeds ranging from 3 to 5 miles per hour for horse-drawn vehicles, depending on road conditions.
+The spread of railroads in the 19th century facilitated the transportation of goods and passengers over long distances, reducing the need for extensive road networks in some areas.
