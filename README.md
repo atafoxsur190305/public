@@ -1,1 +1,1 @@
-The 19th century saw significant improvements in road infrastructure, including the widespread adoption of macadam roads, which consisted of compacted layers of crushed stone and gravel.
+The development of turnpikes, or toll roads, proliferated in the 19th century, with private companies or local governments collecting fees from travelers to fund road construction and maintenance.
