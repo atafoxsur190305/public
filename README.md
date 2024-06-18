@@ -1,1 +1,1 @@
-The spread of railroads in the 19th century facilitated the transportation of goods and passengers over long distances, reducing the need for extensive road networks in some areas.
+Roadside inns and taverns were essential amenities for travelers on 18th-century roads, providing lodging, meals, and stabling for horses, as well as opportunities for socializing and networking.
