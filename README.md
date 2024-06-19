@@ -1,1 +1,1 @@
-Roadside inns and taverns were essential amenities for travelers on 18th-century roads, providing lodging, meals, and stabling for horses, as well as opportunities for socializing and networking.
+The expansion of postal services and courier networks in the 19th century relied on well-maintained roads for the timely delivery of mail and packages between towns and cities.
