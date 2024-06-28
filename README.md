@@ -1,1 +1,1 @@
-Road tolls, known as turnpikes, were introduced in the 18th century to fund road maintenance and construction, with travelers required to pay fees at toll gates along designated routes.
+The construction of the Channel Tunnel, completed in 1994, provided a direct rail link between the United Kingdom and mainland Europe, facilitating trade and travel between the two regions.
