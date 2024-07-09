@@ -1,1 +1,1 @@
-The construction of the Channel Tunnel, completed in 1994, provided a direct rail link between the United Kingdom and mainland Europe, facilitating trade and travel between the two regions.
+The widespread adoption of road signs, lane markings, and traffic signals in the 20th century standardized communication and navigation for drivers, enhancing safety and reducing accidents on roads.
