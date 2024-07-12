@@ -1,1 +1,1 @@
-Travel by horse and carriage was the primary mode of transportation on 18th-century roads, with stagecoaches, wagons, and carriages being common sights on major routes.
+Roads in the 18th century were primarily unpaved, consisting of dirt, gravel, or cobblestones, which made travel slow, difficult, and uncomfortable.
