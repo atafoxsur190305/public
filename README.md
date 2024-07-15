@@ -1,1 +1,1 @@
-Roads in the 18th century were primarily unpaved, consisting of dirt, gravel, or cobblestones, which made travel slow, difficult, and uncomfortable.
+In urban areas, streets were often narrow and congested, with pedestrians, carts, and animals competing for limited space, leading to traffic jams and safety hazards.
