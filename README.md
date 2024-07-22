@@ -1,1 +1,1 @@
-Highwaymen, or robbers who preyed on travelers, were a common threat on 18th-century roads, particularly in remote or isolated areas where law enforcement was scarce.
+Travelers faced numerous hazards on 18th-century roads, including potholes, ruts, mud, and uneven surfaces, which could cause accidents, damage vehicles, and delay journeys.
