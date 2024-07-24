@@ -1,1 +1,1 @@
-Travel by horse and carriage was the primary mode of transportation on 18th-century roads, with stagecoaches, wagons, and carriages being common sights on major routes.
+The development of horse-drawn omnibuses and public transit systems in the 19th century required the construction of paved streets and roads in cities to accommodate increased traffic and demand for transportation services.
